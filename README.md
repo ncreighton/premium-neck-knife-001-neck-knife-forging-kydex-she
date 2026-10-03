@@ -1,0 +1,2 @@
+# premium-neck-knife-001-neck-knife-forging-kydex-she
+Stop guessing your next hammer strike and wasting expensive steel on trial-and-error builds—this Notion template gives you a complete, repeatable workflow for forging a neck knife and crafting a custom Kydex sheath, from fire to finish.  The Neck Knife Forging &amp; Kydex Sheath Craft Workshop eliminates the chaos of scattered notes, forgotten steps, a
